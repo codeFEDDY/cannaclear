@@ -1,1 +1,1 @@
-[the full README]
+[full README with Namecheap steps for cannaclear]
